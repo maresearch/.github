@@ -1,2 +1,2 @@
-# Ma Research Groupi
+# Ma Research Group
 
